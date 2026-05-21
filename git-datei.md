@@ -1,1 +1,1 @@
-Hallo, ich bin Flagge_DURLACHERTOR
+Hallo, ich bin Flagge_DURLACH
